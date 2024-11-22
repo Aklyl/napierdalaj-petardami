@@ -1,1 +1,1 @@
-# napierdalaj-petardami
+# strona
